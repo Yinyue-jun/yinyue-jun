@@ -46,7 +46,7 @@
     
     I do not force these ships onto anyone or expect anyone to INT with me on these. Don’t force your ships onto me as I don’t do it to anyone else.
 
-* ArdaminA, Chili (Friends only), Haikaveh (Strictly Friends only), Caeheng, Renfeng (Friends only), ShiGuang (Link Click), JaeXiao (Link Click), other ships, whisper if unsure (directed at friends and strangers).
+* ArdaminA, Chili (Friends only), Haikaveh (Strictly Friends only), Caeheng, Renfeng (Friends only), ShiGuang (Link Click), JaeXiao (Link Click), Veinfei (Link Click), VeinXiao (Link Click), other ships, whisper if unsure (directed at friends and strangers).
 
 <p align="center">
 ⋆｡°✩
