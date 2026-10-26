@@ -86,6 +86,11 @@
     I do not force these ships onto anyone or expect anyone to INT with me on these. Don’t force your ships onto me as I don’t do it to anyone else.
     
 * ArdaminA (Endfield), Chili (Genshin) (Friends only), Haikaveh (Genshin) (Strictly Friends only), Caeheng (HSR), Renfeng (HSR) (Friends only), ShiGuang/Chengguang (Link Click), JaeXiao (Link Click), I support most Link Click ships btw, don’t be hesitate to ask or sit with me as such, other ships, whisper if unsure (directed at friends and strangers).
+
+<p align="center">
+ <image src="https://github.com/user-attachments/assets/6547ea45-dbaa-4a2f-9f2d-5d9756b0b8b8" />
+
+</p>
      
 ## ✩ Display Status in game
 <p align="center">
