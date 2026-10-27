@@ -38,8 +38,9 @@
 
      
 ## ✩ **Character LIST, ect.**
-* I heavily Kin Nico di Angelo, Dan Heng and Ardashir
-* I also kin Zhongli, Dan Feng, and Liu Xiao
+* I heavily Kin Nico di Angelo, Dan Heng, Ardashir, and Liu Xiao
+
+* I kin Zhongli, Dan Feng, and Liu Xiao
 * **Yume Characters:** Vedrfolnir (Genshin Impact) with my OC Song Feng. Tragodia (Arknights) or Logos (Arknights) with my OC Perish.
 * **Ships that I’m okay to interact with:** This doesn’t mean if I’m sitting with someone as these two characters that it implies a ship interaction. Pls get over yourself.
 <p align=center>
