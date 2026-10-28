@@ -39,6 +39,9 @@
      
 ## ✩ **Character LIST, ect.**
 * I heavily Kin Nico di Angelo, Dan Heng, Ardashir, and Liu Xiao
+<p align=center>
+    
+    Liu Xiao has the same personality type as me and we almost share birthdays. His being December 10th, and mine being December 11th.
 
 * I kin Zhongli, Dan Feng, and Liu Xiao
 * **Yume Characters:** Vedrfolnir (Genshin Impact) with my OC Song Feng. Tragodia (Arknights) or Logos (Arknights) with my OC Perish.
